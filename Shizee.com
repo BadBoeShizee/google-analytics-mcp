@@ -1,0 +1,41 @@
+````markdown name=Shizee_Bio.md
+# Seyifunmi Imoleayomide Olaoke (Shizee) — Artist Bio
+
+**Seyifunmi Imoleayomide Olaoke**, known professionally as **Shizee**, is a gifted Nigerian musician and songwriter. He's making a name for himself with his unique blend of Afrobeat and contemporary sounds. Driven by a passion for music and creativity, Shizee is fast becoming a standout talent in the industry.
+
+---
+
+## Q&A with Shizee
+
+**What are your top 3 all-time favorite albums on Apple Music, and why?**
+
+- **Shizee, Oloshe (feat. Norchkingz) - Single**  
+  "'Oloseh' is a fire track! My energy and flow on this song are infectious, and the beat is straight. I chose this because it represents my unique sound and what I bring to Afrobeat."
+
+- *(far from home ep )*
+
+---
+
+**Find a song of yours on Apple Music that you love and tell us what makes it special.**
+
+- **Puff Puff Pass**  
+  "The way I blend Afrobeat with modern vibes on 'Puff Puff Pass' creates a unique sound that's hard to get out of your head. I love this song because it truly reflects my style and creativity."
+
+---
+
+**What’s one of the most memorable moments in your career so far?**
+
+"One of the highlights of my career so far has been the release of my hit EP 'Far From Home,' especially the track 'Oloseh.' This song showcases my unique blend of Afrobeat and contemporary sounds, and its success has helped establish me as a rising talent in the music scene!"
+
+---
+
+**Is there anything left on your bucket list as an artist?**
+
+"I'm a true creative force in the music industry. With my innovative blend of Afrobeat and contemporary sounds, I'm crafting a unique sound that's both authentic and captivating. My passion for music shines through in every note, and I'm always looking for the next big challenge
+
+—whether that's collaborating with international artists, performing on bigger stages, or reaching new audiences around the world."
+
+---c
+
+[Listen to Shizee’s latest tracks here!](https://hyperfollow.com/shizee70)
+
